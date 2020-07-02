@@ -1,0 +1,1 @@
+# wethepeopleswiss-logo
